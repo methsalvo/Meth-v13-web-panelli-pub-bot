@@ -1,5 +1,5 @@
 # Meth-Salvo-v13-web-panelli-pub-bot
-botlar 60 starda paylaşılacaktır hemen isteyene kısa süreliğine 200 liraya satıyorum 
+botlar 60 starda paylaşılacaktır.
 # Görseller
 ![image](https://cdn.discordapp.com/attachments/987346357096419368/987351745682358312/unknown.png)
 ![image](https://cdn.discordapp.com/attachments/987346357096419368/987351843669704724/unknown.png)
