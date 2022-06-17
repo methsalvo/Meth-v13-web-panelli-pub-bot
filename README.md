@@ -10,3 +10,4 @@ botlar 60 starda paylaşılacaktır.
 ![image](https://cdn.discordapp.com/attachments/987346357096419368/987352528758911006/unknown.png)
 ![image](https://cdn.discordapp.com/attachments/987346357096419368/987350323100274698/unknown.png)
 ![image](https://cdn.discordapp.com/attachments/987346357096419368/987350868632420402/unknown.png)
+![image](https://cdn.discordapp.com/attachments/987346357096419368/987349755308945448/166436182-86d100cb-692d-4605-bc83-728638d440cd.png)
